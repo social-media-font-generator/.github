@@ -1,5 +1,3 @@
-# Social Media Font Generator ➜ #𝟙 Fancy Font Generator  
-
 Want to make your social media posts more stylish? A **social media font generator** helps you create unique and eye-catching text for platforms like Instagram, Facebook, and TikTok. Add personality to your bio, captions, or posts with just a few clicks!  
 
 ### Links to Our Tool:  
