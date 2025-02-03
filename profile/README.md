@@ -1,5 +1,7 @@
 [![social media font generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
 
+---
+
 Want to make your social media posts more stylish? A **social media font generator** helps you create unique and eye-catching text for platforms like Instagram, Facebook, and TikTok. Add personality to your bio, captions, or posts with just a few clicks!  
 
 ---
